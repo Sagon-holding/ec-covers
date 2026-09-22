@@ -1,0 +1,1 @@
+Editorial Central cover assets
